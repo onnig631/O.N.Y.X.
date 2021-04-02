@@ -1,2 +1,2 @@
-# O.N.Y.X.
+# ONYX FITNESS
 Always here for your daily needs
